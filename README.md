@@ -1,1 +1,1 @@
-# sporsalonyonet-m-IlkayVural22-23sporsalonu
+# sporsalonyonetım-IlkayVural22-23sporsalonu
