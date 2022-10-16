@@ -1,1 +1,1 @@
-# sporsalonyonet-m-IlkayVural22-23sprosalonu
+# sporsalonyonet-m-IlkayVural22-23sporsalonu
